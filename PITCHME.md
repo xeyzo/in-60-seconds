@@ -1,15 +1,9 @@
-# Flux 
-
-An application architecture for React
-
----
-
-### Flux Design
-
-- Dispatcher: Manages Data Flow
-- Stores: Handle State & Logic
-- Views: Render Data via React
+# The 4-Hour Workweek
+#####Tinggalkan pekerjaan nine to five, hidup di mana saja,dan begabunglah dengan kaum kaya baru
 
 ---
+                       
+![Flux Explained](https://raw.githubusercontent.com/xeyzo/in-60-seconds/master/the-4-hour-workweek.gif)
 
-![Flux Explained](https://facebook.github.io/flux/img/flux-simple-f8-diagram-explained-1300w.png)
+###TIMOTHY FERRISS
+
