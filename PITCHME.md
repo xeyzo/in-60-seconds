@@ -26,7 +26,8 @@ penyakit itulah  yamg memiliki kita.
 - (P) Bekerja dengan keinginan untuk bisa pensiun dini dan dapat membeli semua hal yang anda inginkan, menjadi yang berkuasa(BOS),Memperoleh imbalan besar, dan memiliki kebebasan dari melakukan hal - hal yang tidak disukai.
 - (KKB) Menjadi pemilik,Menghasilkan banyak keuntungan demi alasan yang spesifik,memiliki fleksibilatas dalam beraktivitas yang lebih
 ---
-~Prinsip pertama adalah Anda tidak boleh membodohi diri sendiri dan anda adalah orang yang paling mudah dibodohi~ 
+Prinsip pertama adalah Anda tidak boleh membodohi diri sendiri dan anda adalah orang yang paling mudah dibodohi 
+(mengeluh itu cape)
 ---
 ### Jadi,siapakah KKB?
 - Seorang yang menata ulang jadwalnya untuk untuk melakukan aktivitas.
@@ -36,4 +37,6 @@ penyakit itulah  yamg memiliki kita.
 Peradaban memiliki banyak peraturan buat saya, jadi saya berusaha yang terbaik untuk menulis ulang peraturan-peraturan
 ---
 Sekali anda berkata ingin mapan untuk sedetik saja, itu yang akan terjadi sepanjang hidup
+---
+selesai
 ---
