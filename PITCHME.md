@@ -18,5 +18,5 @@ Individu - individu ini memiliki kekayaan persis seperti kita mengatakan kita se
 penyakit itulah  yamg memiliki kita.
 ---
 ## Suatu perbandingan 
-KaumKayaBaru(KKB) => mencerminkan priritas dan filosofi hidup yang sangat berbeda
-Penunda(P) => yaitu mereka yang menunda sampai akhir hanya untuk menemukan bahwa hidup sudah meninggalkan mereka 
+- KaumKayaBaru(KKB) => mencerminkan priritas dan filosofi hidup yang sangat berbeda
+- Penunda(P) => yaitu mereka yang menunda sampai akhir hanya untuk menemukan bahwa hidup sudah meninggalkan mereka 
