@@ -8,7 +8,7 @@ Tinggalkan pekerjaan nine to five, hidup di mana saja,dan begabunglah dengan kau
 <br>
 ### D untuk Definisi
 
-####### Kenyataan itu hanyalah ilusi,Tapi yang keras kepala.   
+-Kenyataan itu hanyalah ilusi,Tapi yang keras kepala.   
    
    (ALBERT EINSTEIN) 
 ---
