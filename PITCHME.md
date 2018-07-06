@@ -11,7 +11,9 @@
 ###   ALBERT EINSTEIN 
 ---
 ### PERINGATAN DAN PERBANDINGAN
-"Individu - individu ini memiliki kekayaan persis seperti kita mengatakan kita sedang 'memiliki penyakit' padahal
-penyakit itulah  yamg memiliki kita."
+
+
+Individu - individu ini memiliki kekayaan persis seperti kita mengatakan kita sedang "memiliki penyakit" padahal
+penyakit itulah  yamg memiliki kita.
 ---
 #
