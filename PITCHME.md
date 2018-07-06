@@ -10,10 +10,10 @@
    Kenyataan itu hanyalah ilusi,Tapi yang keras kepala.   
 ###   ALBERT EINSTEIN 
 ---
-# PERINGATAN DAN PERBANDINGAN
+### PERINGATAN DAN PERBANDINGAN
 
-###### Bagaimana Membakar 1 juta Dolar Dalam Semalam?
+####### Bagaimana Membakar 1 juta Dolar Dalam Semalam?
 "Individu - individu ini memiliki kekayaan persis seperti kita mengatakan kita sedang 'memiliki penyakit' padahal
-penyakit itulah  yamg memiliki kita.######         - SENECA(4SM-65) -
+penyakit itulah  yamg memiliki kita.- SENECA(4SM-65) -
 ---
 #
