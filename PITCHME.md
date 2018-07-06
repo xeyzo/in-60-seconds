@@ -6,6 +6,7 @@
 ##### Tinggalkan pekerjaan nine to five, hidup di mana saja,dan begabunglah dengan kaum kaya baru
 
 ---
+<br>
 # D untuk Definisi
    Kenyataan itu hanyalah ilusi,Tapi yang keras kepala.   
    
