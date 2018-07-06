@@ -6,9 +6,9 @@
 ##### Tinggalkan pekerjaan nine to five, hidup di mana saja,dan begabunglah dengan kaum kaya baru
 
 ---
-### D untuk Definisi
+# D untuk Definisi
    Kenyataan itu hanyalah ilusi,Tapi yang keras kepala.   
-###   ALBERT EINSTEIN 
+##########   ALBERT EINSTEIN 
 ---
 ### PERINGATAN DAN PERBANDINGAN
 
@@ -16,4 +16,5 @@
 Individu - individu ini memiliki kekayaan persis seperti kita mengatakan kita sedang "memiliki penyakit" padahal
 penyakit itulah  yamg memiliki kita.
 ---
-#
+## Suatu perandingan 
+#### KaumKayaBaru(KKB)
