@@ -6,8 +6,9 @@
 ##### Tinggalkan pekerjaan nine to five, hidup di mana saja,dan begabunglah dengan kaum kaya baru
 
 ---
-##D untuk Definisi
+## D untuk Definisi
    Kenyataan itu hanyalah ilusi,Tapi yang keras kepala.
+---   
 ###   ALBERT EINSTEIN 
 ## PERINGATAN DAN PERBANDINGAN
 ### Bagaimana Membakar 1 juta Dolar Dalam Semalam?
