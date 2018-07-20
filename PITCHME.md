@@ -24,4 +24,3 @@ pertanyaannya adalah mau sampai kapan???, apakah anda tidak membayangkan mobilit
 ---
 - Minat dan energi itu ada siklusnya
 - Lebih sedikit bukanlah berarti malas 
----
