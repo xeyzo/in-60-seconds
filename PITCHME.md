@@ -6,15 +6,17 @@ Tinggalkan pekerjaan nine to five, hidup di mana saja,dan begabunglah dengan kau
 
 ---
 <br>
-### PERINGATAN DAN PERBANDINGAN
+### Penerapan Gaya Hidup Terancang
 
 
-Individu - individu ini memiliki kekayaan persis seperti kita mengatakan kita sedang "memiliki penyakit" padahal
-penyakit itulah  yamg memiliki kita.
+Terlalu banyak kesibukan yang disebut rutinitas yang pada akhirnya mengalahkan quality time bersama keluarga
+dan merasa terpaksa untuk menyelesaikan pekerjaan, hanya  untuk mengejar pensiun mini agar bisa sepenuhnya bersama.
+pertanyaannya adalah mau sampai kapan???, apakah anda tidak membayangkan mobilitas anda ketika sudah tua???
 ---
-## Suatu perbandingan 
-- KaumKayaBaru(KKB) => mencerminkan prioritas dan filosofi hidup yang sangat berbeda
-- Penunda(P) => yaitu mereka yang menunda sampai akhir hanya untuk menemukan bahwa hidup sudah meninggalkan mereka 
+### Mengalahkan Permainan, Bukan Memainkan Permainan
+- Jadi pada dasarnya perkerjaan yang menyenangkan adalah hoby yang menghasilkan uang 
+- "Olahraga berubah ketika aturan utama dikorbankan dan ketika asumsi - asumsi dasar mulai diuji"
+   (Hal Yang sama terjadi dalam hidup dan gaya hidup)
 ---
 ## Secara Detail
 - (P) Bekerja dengan keinginan untuk bisa pensiun dini dan dapat membeli semua hal yang anda inginkan, menjadi yang berkuasa(BOS),Memperoleh imbalan besar, dan memiliki kebebasan dari melakukan hal - hal yang tidak disukai.
