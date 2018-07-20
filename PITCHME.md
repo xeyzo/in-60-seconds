@@ -18,21 +18,10 @@ pertanyaannya adalah mau sampai kapan???, apakah anda tidak membayangkan mobilit
 - "Olahraga berubah ketika aturan utama dikorbankan dan ketika asumsi - asumsi dasar mulai diuji"
    (Hal Yang sama terjadi dalam hidup dan gaya hidup)
 ---
-## Secara Detail
-- (P) Bekerja dengan keinginan untuk bisa pensiun dini dan dapat membeli semua hal yang anda inginkan, menjadi yang berkuasa(BOS),Memperoleh imbalan besar, dan memiliki kebebasan dari melakukan hal - hal yang tidak disukai.
-- (KKB) Menjadi pemilik,Menghasilkan banyak keuntungan demi alasan yang spesifik,memiliki fleksibilatas dalam beraktivitas yang lebih
+## Menentang Hal Biasa dan bersikap bodoh
+- Berbeda itu lebih baik kalau ada cara yang lebih efektif dan menyenangkan
+- Pensiun adalah asuransi skenerio terburuk yang mungkin terjadi
 ---
-Prinsip pertama adalah Anda tidak boleh membodohi diri sendiri dan anda adalah orang yang paling mudah dibodohi 
-(mengeluh itu cape)
----
-### Jadi,siapakah KKB?
-- Seorang yang menata ulang jadwalnya untuk untuk melakukan aktivitas.
-- meng-outsource-kan seluruh oprasional dan melakukan hal - hal yang disukai
-- seseorang yang memilih untuk mengambil risiko apa saja, untuk mencapai suatu tujuan namun juga tak diam melainkan kerja sampingan
----
-Peradaban memiliki banyak peraturan buat saya, jadi saya berusaha yang terbaik untuk menulis ulang peraturan-peraturan
----
-Sekali anda berkata ingin mapan untuk sedetik saja, itu yang akan terjadi sepanjang hidup
----
-selesai
+- Minat dan energi itu ada siklusnya
+- Lebih sedikit bukanlah berarti malas 
 ---
